@@ -1,5 +1,4 @@
-# supwefwfaefewaffwafwe, idk what I'm doing
+# sup, I upgraded the title, as the chad I am
 
-blaaa blaa blee blee
-
-actual valuable thing
+This is a super intelligent feature
+actual valuable thing, I upgraded the title, as the chad I am
